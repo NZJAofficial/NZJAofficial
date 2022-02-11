@@ -1,0 +1,2 @@
+- 👋 Hi, I’m NZJA
+- 👀 Discord NZJA@7861
